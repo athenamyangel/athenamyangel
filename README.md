@@ -62,7 +62,8 @@ $\color{pink}{\textsf{follow me on twitter for dependence @ myangelathena }}$
 <br/>
 <br/>
 
-<img width="2048" height="644" alt="IMG_6444" src="https://github.com/user-attachments/assets/f9dc809f-2e9b-454b-aa2e-2e47d9db7946" />
+<img width="1199" height="944" alt="Untitled4_20260906012411" src="https://github.com/user-attachments/assets/0c5cf4e1-ac00-4cbf-a503-8a54e25662af" />
+
 
 <br/>
 <br/>
