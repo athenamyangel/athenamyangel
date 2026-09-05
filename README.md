@@ -7,7 +7,7 @@
 &emsp;
 
 
-![Profile Views](https://komarev.com/ghpvc/?username=myangelathena&style=flat-square&color=fddce2&ffffff&label=please+don't+ever+request+.+.)
+![Profile Views](https://komarev.com/ghpvc/?username=myangelathena&style=flat-square&color=fddce2&ffffff&label=please+don't+ever+stop+thinking+.+.)
 
 &emsp;
 &emsp;
